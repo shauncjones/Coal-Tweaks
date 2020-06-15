@@ -1,1 +1,1 @@
-# Coal-Tweaks
+# Coal Tweaks
